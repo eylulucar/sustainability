@@ -1,5 +1,7 @@
 # [Sustainable Agriculture](https://medium.com/@eylul.asthelearner)
 
+<img width="2171" height="1911" alt="image" src="https://github.com/user-attachments/assets/41361bde-0a99-4ec9-a821-8e70784be654" />
+
 > https://tr.linkedin.com/in/eylul-ucar  
 >   
 >   
