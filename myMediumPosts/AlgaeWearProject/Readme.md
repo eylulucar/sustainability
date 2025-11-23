@@ -1,9 +1,6 @@
 
 ## You can get information about Our Project in English, French and Turkish.
-
-
-
-
+---
 
 AlgaeWear est un T-shirt produit à partir de fibres à base d'algues qui peuvent réaliser la photosynthèse. Il ne s'agit pas seulement d'un tissu écologique ; c'est un vêtement **actif ayant un impact sur le climat** avec une fonctionnalité d'absorption du carbone._
 
